@@ -1,1 +1,1 @@
-como difizia o filosofo chico moeda :  "EU TENTEIII"
+como dizia o filosofo chico moeda :  "EU TENTEIII"
